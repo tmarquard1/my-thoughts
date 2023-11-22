@@ -8,8 +8,6 @@ We cannot do anything the way we have it now
 
 We must prepare for the ai future, so that we accelerate with it. Not lagging behind. 
 
-Frustration with 10X. 
-
 frustration with technology limitations. 
 
 How do I lead us forward???
